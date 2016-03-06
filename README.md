@@ -9,5 +9,3 @@ You must die! I'm along the best!
 Your site was hacked ;)!
 
 =)
-
-на
