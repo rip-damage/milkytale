@@ -10,6 +10,4 @@ Your site was hacked ;)!
 
 =)
 
-
-
-
+на
